@@ -8,7 +8,7 @@ category: "Subbed"
 tags:
   - "One Piece"
   - "Subbed"
-description: "A Blade of Tenacity! The Gamma Knife Counterattack!""
+description: "A Blade of Tenacity! The Gamma Knife Counterattack!"
 ---
 
 **A Blade of Tenacity! The Gamma Knife Counterattack!"**
