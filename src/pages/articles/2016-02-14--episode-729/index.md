@@ -1,0 +1,18 @@
+---
+title: Episode 729
+date: "2016-02-14T05:30:00+00:00"
+layout: post
+draft: false
+path: "/sub-one-piece-episode-729"
+category: "Subbed"
+tags:
+  - "One Piece"
+  - "Subbed"
+description: "Kaen Ryuo - Protect Luffy's Life"
+---
+
+**Kaen Ryuo - Protect Luffy's Life**
+
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPGME77" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPGME77">Download Episode 729</a>

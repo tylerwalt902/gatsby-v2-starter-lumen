@@ -1,0 +1,18 @@
+---
+title: Episode 478
+date: "2010-12-05T05:30:00+00:00"
+layout: post
+draft: false
+path: "/sub-one-piece-episode-478"
+category: "Subbed"
+tags:
+  - "One Piece"
+  - "Subbed"
+description: "For a Promise!! Luffy and Coby Clash!"
+---
+
+**For a Promise!! Luffy and Coby Clash!**
+
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPEX9SA" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPEX9SA">Download Episode 478</a>

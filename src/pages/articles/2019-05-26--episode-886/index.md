@@ -1,6 +1,6 @@
 ---
 title: Episode 886
-date: "2019-05-26T23:46:37.121Z"
+date: "2019-05-26T00:30:00+00:00"
 layout: post
 draft: false
 path: "/sub-one-piece-episode-886"
@@ -8,9 +8,11 @@ category: "Subbed"
 tags:
   - "One Piece"
   - "Subbed"
-description: "After seeing the Empty Throne, Stelly desires to sit on it. Meanwhile, Charlos attempts to take Shirahoshi by force with CP-0 protecting him. Neptune prepares to attack Charlos until Donquixote Mjosgard intervenes and knocks out Charlos."
+description: "The Uproarious Holy Land - Princess Shirahoshi is being targeted!"
 ---
-**The Holyland in Tumult! The Targeted Princess Shirahoshi!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G3T4W3KAOW" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+**The Uproarious Holy Land - Princess Shirahoshi is being targeted!**
 
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPHG3D1" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPHG3D1">Download Episode 886</a>

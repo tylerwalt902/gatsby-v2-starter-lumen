@@ -1,0 +1,18 @@
+---
+title: Episode 382
+date: "2008-12-21T05:30:00+00:00"
+layout: post
+draft: false
+path: "/sub-one-piece-episode-382"
+category: "Subbed"
+tags:
+  - "One Piece"
+  - "Subbed"
+description: "Noro Noro Menace - Return of Foxy the Silver Fox"
+---
+
+**Noro Noro Menace - Return of Foxy the Silver Fox**
+
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0WJWSE4" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXV0WJWSE4">Download Episode 382</a>
