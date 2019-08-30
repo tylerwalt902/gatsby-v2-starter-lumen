@@ -8,7 +8,7 @@ category: "Subbed"
 tags:
   - "One Piece"
   - "Subbed"
-description: "A Top Executive! One of the Three Commanders "Cracker" Appears"
+description: "A Top Executive! One of the Three Commanders /"Cracker/" Appears"
 ---
 
 **A Top Executive! One of the Three Commanders "Cracker" Appears**

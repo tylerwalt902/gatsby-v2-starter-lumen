@@ -8,7 +8,7 @@ category: "Subbed"
 tags:
   - "One Piece"
   - "Subbed"
-description: "Totto Land! One of the Yonko "Big Mom" Appears"
+description: "Totto Land! One of the Yonko /"Big Mom/" Appears"
 ---
 
 **Totto Land! One of the Yonko "Big Mom" Appears**

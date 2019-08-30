@@ -8,7 +8,7 @@ category: "Subbed"
 tags:
   - "One Piece"
   - "Subbed"
-description: "The Yonko's Daughter – Sanji's Fiancée "Pudding""
+description: "The Yonko's Daughter – Sanji's Fiancée /"Pudding/""
 ---
 
 **The Yonko's Daughter – Sanji's Fiancée "Pudding"**

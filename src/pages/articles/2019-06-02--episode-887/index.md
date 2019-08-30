@@ -8,7 +8,7 @@ category: "Subbed"
 tags:
   - "One Piece"
   - "Subbed"
-description: "On the Verge - The Two Yonko Targeting Luffy""
+description: "On the Verge - The Two Yonko Targeting Luffy/""
 ---
 
 **On the Verge - The Two Yonko Targeting Luffy"**
