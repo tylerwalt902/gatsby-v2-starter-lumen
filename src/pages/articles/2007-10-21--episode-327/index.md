@@ -15,4 +15,3 @@ description: "Sunny in a Pinch! Roar, Secret Superspeed Mecha"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXREM4JNIS" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXREM4JNIS">Download Episode 327</a>

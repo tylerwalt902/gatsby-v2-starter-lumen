@@ -15,4 +15,3 @@ description: "You're the Weird Creature! Gaimon and His Strange Friends!"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/3qv18wwl2oy" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/3qv18wwl2oy">Download Episode 18</a>

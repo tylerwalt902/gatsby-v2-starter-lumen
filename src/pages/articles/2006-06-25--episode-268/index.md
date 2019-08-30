@@ -15,4 +15,3 @@ description: "Catch Up with Luffy! The Straw Hat Pirates' All-Out War"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHG43LXE" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQHG43LXE">Download Episode 268</a>

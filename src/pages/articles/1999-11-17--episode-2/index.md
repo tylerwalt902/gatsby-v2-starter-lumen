@@ -15,4 +15,3 @@ description: "Enter the Great Swordsman! Pirate Hunter Roronoa Zoro!"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/4d9j0-d0yo1" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/4d9j0-d0yo1">Download Episode 2</a>

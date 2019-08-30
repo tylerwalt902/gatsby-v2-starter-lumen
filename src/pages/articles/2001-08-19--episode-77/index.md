@@ -15,4 +15,3 @@ description: "Farewell to the Giants' Island! On to Alabasta"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FX3C481KFC" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FX3C481KFC">Download Episode 77</a>

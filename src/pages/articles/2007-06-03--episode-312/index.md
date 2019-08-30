@@ -15,4 +15,3 @@ description: "Thank You Merry! The Sea of Separation in the Snow"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQI0U4JBF" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQI0U4JBF">Download Episode 312</a>

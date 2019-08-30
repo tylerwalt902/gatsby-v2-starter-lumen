@@ -15,4 +15,3 @@ description: "With a Rumbling of the Ground! The God of Destruction - Giant Pica
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPGC948" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPGC948">Download Episode 683</a>

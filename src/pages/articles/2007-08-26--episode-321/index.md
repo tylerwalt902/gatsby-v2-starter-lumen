@@ -15,4 +15,3 @@ description: "The King of Beasts that will Cross the Ocean! The Dream Ship's Mag
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXREIZU12I" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXREIZU12I">Download Episode 321</a>

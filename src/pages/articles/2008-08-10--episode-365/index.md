@@ -15,4 +15,3 @@ description: "The Enemy is Luffy!! The Strongest Zombie vs. the Straw Hat Crew"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0NAAP7T" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXV0NAAP7T">Download Episode 365</a>

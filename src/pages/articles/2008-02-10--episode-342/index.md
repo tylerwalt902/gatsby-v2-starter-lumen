@@ -15,4 +15,3 @@ description: "Mystery of the Zombies! Hogback's Nightmarish Research Laboratory"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXREPR8X9G" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXREPR8X9G">Download Episode 342</a>

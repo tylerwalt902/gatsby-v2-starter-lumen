@@ -15,4 +15,3 @@ description: "Outcome of a Deadly Battle! The Spear Inside!"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/p6vg68lrx9j" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/p6vg68lrx9j">Download Episode 29</a>

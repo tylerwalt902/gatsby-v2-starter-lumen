@@ -15,4 +15,3 @@ description: "The Ryugu Palace Fight! Zoro vs. Hody!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPF8GN6" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPF8GN6">Download Episode 536</a>

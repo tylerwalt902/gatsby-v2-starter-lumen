@@ -15,4 +15,3 @@ description: "Usopp vs. Daddy The Father! Showdown at High Noon!"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/p69g68lgxoj" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/p69g68lgxoj">Download Episode 50</a>

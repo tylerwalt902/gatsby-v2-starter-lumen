@@ -15,4 +15,3 @@ description: "The Crew Falls?! Hody Conquers Ryuuguu Palace"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPF8TMF" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPF8TMF">Download Episode 538</a>

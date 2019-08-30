@@ -15,4 +15,3 @@ description: "One Down!! Sure Kill Straw Hat Docking?"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0NM1LCY" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXV0NM1LCY">Download Episode 367</a>

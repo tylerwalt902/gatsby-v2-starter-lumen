@@ -15,4 +15,3 @@ description: "The Green City, Erumalu and the Kung Fu Dugongs"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FX3CO2YT89" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FX3CO2YT89">Download Episode 96</a>

@@ -15,4 +15,3 @@ description: "The Whole Crew is Gathered - Luffy Sets Sail Towards the New World
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPF5NXL" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPF5NXL">Download Episode 522</a>

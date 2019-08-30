@@ -15,4 +15,3 @@ description: "The City of Water is Shaking! Iceburg was Targeted!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQH1FHSM9" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQH1FHSM9">Download Episode 237</a>

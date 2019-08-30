@@ -15,4 +15,3 @@ description: "I Won't Die! Conclusion: Luffy vs. Krieg"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/4doj06nqyv1" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/4doj06nqyv1">Download Episode 28</a>

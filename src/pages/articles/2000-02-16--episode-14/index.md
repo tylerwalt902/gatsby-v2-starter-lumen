@@ -15,4 +15,3 @@ description: "Luffy Back in Action! Miss Kaya's Desperate Resistance!"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/dwvr-zz3pvg" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/dwvr-zz3pvg">Download Episode 14</a>

@@ -15,4 +15,3 @@ description: "Peril of the Ordeal of Balls! Fight to the Death in the Lost Fores
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQEAFWE2P" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQEAFWE2P">Download Episode 161</a>

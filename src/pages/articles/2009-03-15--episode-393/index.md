@@ -15,4 +15,3 @@ description: "The Target is Caimie!! The Kidnappers` Evil Draws Near"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV107ANPC" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXV107ANPC">Download Episode 393</a>

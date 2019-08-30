@@ -15,4 +15,3 @@ description: "Guidance from the Sound of a Bell! The Great Warrior and Tales of 
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQGJ5PNUP" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQGJ5PNUP">Download Episode 187</a>

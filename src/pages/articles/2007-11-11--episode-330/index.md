@@ -15,4 +15,3 @@ description: "The Hard Fights of the Straw Hat Crew! The Pirate Soul Banking it 
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXREMGCYQ6" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXREMGCYQ6">Download Episode 330</a>

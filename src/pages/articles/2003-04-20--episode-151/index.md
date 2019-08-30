@@ -15,4 +15,3 @@ description: "The 100 Million Man! The World's Greatest Authority and the Pirate
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQE8F5SH1" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQE8F5SH1">Download Episode 151</a>

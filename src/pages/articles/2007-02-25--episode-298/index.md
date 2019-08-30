@@ -15,4 +15,3 @@ description: "Kick! Full Course of Sanji's Footwork"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHUN8EWC" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQHUN8EWC">Download Episode 298</a>

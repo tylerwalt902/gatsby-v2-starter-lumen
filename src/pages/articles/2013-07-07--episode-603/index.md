@@ -15,4 +15,3 @@ description: "The Counterattack Begins! Luffy and Law's Great Escape"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPFR9LX" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPFR9LX">Download Episode 603</a>

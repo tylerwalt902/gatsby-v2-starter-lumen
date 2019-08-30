@@ -15,4 +15,3 @@ description: "Climbing Up a Waterfall! A Great Journey Through the Land of Wano'
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G4KA8D61H5" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G4KA8D61H5">Download Episode 891</a>

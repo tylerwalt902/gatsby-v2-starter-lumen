@@ -15,4 +15,3 @@ description: "A Terrifying Mysterious Power! Captain Buggy, the Clown Pirate!"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/7z9-gzkz2vx" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/7z9-gzkz2vx">Download Episode 5</a>

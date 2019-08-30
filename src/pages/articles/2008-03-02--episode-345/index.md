@@ -15,4 +15,3 @@ description: "Filled with Animals!? Perona's Wonder Garden"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXREQ7FDVP" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXREQ7FDVP">Download Episode 345</a>

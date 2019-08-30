@@ -15,4 +15,3 @@ description: "The Secret Hidden on Their Backs, Luffy Encounters The Princess"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G0NNTHNN5K" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G0NNTHNN5K">Download Episode 411</a>

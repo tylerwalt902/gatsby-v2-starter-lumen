@@ -15,4 +15,3 @@ description: "Tragedy of Ohara! Fear of Buster Call!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXRDC7171U" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXRDC7171U">Download Episode 277</a>

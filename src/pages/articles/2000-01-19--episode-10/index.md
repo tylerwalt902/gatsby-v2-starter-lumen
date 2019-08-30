@@ -15,4 +15,3 @@ description: "The Weirdest Guy Ever! Jango the Hypnotist!"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/54oy82gwx9l" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/54oy82gwx9l">Download Episode 10</a>

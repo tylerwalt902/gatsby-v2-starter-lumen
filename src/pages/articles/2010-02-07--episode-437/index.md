@@ -15,4 +15,3 @@ description: "Because He's Our Friend - Bon Kurei's Do-or-Die Rescue"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6GJ53T8ER" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6GJ53T8ER">Download Episode 437</a>

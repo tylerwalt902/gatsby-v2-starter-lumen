@@ -15,4 +15,3 @@ description: "The Promise on that Distant Day - The Song of Pirates and a Small 
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0UCXIS1" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXV0UCXIS1">Download Episode 378</a>

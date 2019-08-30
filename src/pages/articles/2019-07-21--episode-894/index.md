@@ -15,4 +15,3 @@ description: "He'll Come! The Legend of Ace in the Land of Wano!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G5ZQ8IF5VK" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G5ZQ8IF5VK">Download Episode 894</a>

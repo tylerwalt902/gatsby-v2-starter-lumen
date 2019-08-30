@@ -15,4 +15,3 @@ description: "Zeff and Sanji's Dream! The Sea of Dreams - All Blue"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/1lv6y4qglo5" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/1lv6y4qglo5">Download Episode 26</a>

@@ -15,4 +15,3 @@ description: "Destruction of the Straw Hat Pirates? The Terror of the Model Leop
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQH5USY78" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQH5USY78">Download Episode 246</a>

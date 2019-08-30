@@ -15,4 +15,3 @@ description: "Sora's Wish! Germa's Failure - Sanji!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPH4JH3" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPH4JH3">Download Episode 819</a>

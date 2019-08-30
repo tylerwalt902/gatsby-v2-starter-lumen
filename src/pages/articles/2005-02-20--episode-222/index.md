@@ -15,4 +15,3 @@ description: "Get Back the Memories! The Pirates Land"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQGVV0O4A" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQGVV0O4A">Download Episode 222</a>

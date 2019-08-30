@@ -8,11 +8,10 @@ category: "Subbed"
 tags:
   - "One Piece"
   - "Subbed"
-description: "A Blade of Tenacity! The Gamma Knife Counterattack!/""
+description: "A Blade of Tenacity! The Gamma Knife Counterattack!\""
 ---
 
 **A Blade of Tenacity! The Gamma Knife Counterattack!"**
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPGKXSR" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPGKXSR">Download Episode 722</a>

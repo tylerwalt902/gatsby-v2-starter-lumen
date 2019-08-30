@@ -15,4 +15,3 @@ description: "Another Strong Enemy Appears! Broadaxe-Wielding Sentomaru"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G0NNRPC96A" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G0NNRPC96A">Download Episode 403</a>

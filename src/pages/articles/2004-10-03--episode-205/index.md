@@ -15,4 +15,3 @@ description: "The Pirate Round-Up Plan! Jonathon's Secret Winning Strategy!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQGQMBL7S" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQGQMBL7S">Download Episode 205</a>

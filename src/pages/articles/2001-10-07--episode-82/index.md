@@ -15,4 +15,3 @@ description: "Dalton's Resolve! Wapol's Forces Land"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FX3C7V4BJQ" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FX3C7V4BJQ">Download Episode 82</a>

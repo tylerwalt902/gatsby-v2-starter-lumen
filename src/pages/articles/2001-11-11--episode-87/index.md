@@ -15,4 +15,3 @@ description: "VS. Wapol's Army Corps! The Abilities of the Baku Baku Fruit!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FX3C9KIKKL" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FX3C9KIKKL">Download Episode 87</a>

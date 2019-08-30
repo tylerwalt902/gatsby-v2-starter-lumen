@@ -15,4 +15,3 @@ description: "Nami is Sick? Beyond the Snow that Falls on the Ocean!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FX3C4G5PZK" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FX3C4G5PZK">Download Episode 78</a>

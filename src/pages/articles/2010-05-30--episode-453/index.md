@@ -15,4 +15,3 @@ description: "The Friends' Whereabouts! Weatheria Report and Cyborg Animals"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPESG3A" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPESG3A">Download Episode 453</a>

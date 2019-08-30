@@ -15,4 +15,3 @@ description: "Essence of a Mighty Sword! The Power to Cut Steel and the Breath o
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXORF3VXLD" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXORF3VXLD">Download Episode 119</a>

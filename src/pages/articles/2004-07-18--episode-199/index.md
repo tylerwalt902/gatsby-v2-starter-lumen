@@ -15,4 +15,3 @@ description: "The Marine Search Party Draws Near! Another of the Crew is Capture
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQGM4TVCE" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQGM4TVCE">Download Episode 199</a>

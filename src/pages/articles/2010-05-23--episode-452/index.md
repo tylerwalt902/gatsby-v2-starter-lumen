@@ -15,4 +15,3 @@ description: "The Destination is Marine Headquarters - The Ship Sets Out to Resc
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPES94V" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPES94V">Download Episode 452</a>

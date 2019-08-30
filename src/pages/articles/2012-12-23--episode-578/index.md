@@ -15,4 +15,3 @@ description: "Z's Ambition Arc - Luffy VS Shuzo!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPFIDAW" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPFIDAW">Download Episode 578</a>

@@ -15,4 +15,3 @@ description: "The Legend has Begun! Head to the Grand Line"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/7zo-gw8l29x" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/7zo-gw8l29x">Download Episode 53</a>

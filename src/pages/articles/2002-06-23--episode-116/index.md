@@ -15,4 +15,3 @@ description: "Transforming Into Nami! Bon Clay's Hard-Hitting Ballet Kenpo"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXOREDDEUQ" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXOREDDEUQ">Download Episode 116</a>

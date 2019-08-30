@@ -15,4 +15,3 @@ description: "All for the Sake of Protecting My Friends! Gear Second in Motion"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHHAQSK5" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQHHAQSK5">Download Episode 273</a>

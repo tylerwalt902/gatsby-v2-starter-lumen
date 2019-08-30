@@ -15,4 +15,3 @@ description: "Oars Roars!! Come Out Straw Hat Crew"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0N4NTG9" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXV0N4NTG9">Download Episode 364</a>

@@ -15,4 +15,3 @@ description: "New Rivals Gather! The 11 Supernovas"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV102E6IC" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXV102E6IC">Download Episode 392</a>

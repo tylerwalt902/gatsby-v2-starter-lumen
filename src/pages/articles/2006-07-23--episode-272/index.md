@@ -15,4 +15,3 @@ description: "Luffy is in Sight! Gather at the Courthouse Plaza"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHH438BP" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQHH438BP">Download Episode 272</a>

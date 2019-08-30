@@ -15,4 +15,3 @@ description: "All for my Comrades' Sake! The Darkness Within Robin!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHPSU664" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQHPSU664">Download Episode 283</a>

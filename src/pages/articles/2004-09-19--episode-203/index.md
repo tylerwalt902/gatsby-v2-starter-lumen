@@ -15,4 +15,3 @@ description: "The Pirate Ship Disappears! Stronghold Battle, Round 2"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQGPVI6BI" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQGPVI6BI">Download Episode 203</a>

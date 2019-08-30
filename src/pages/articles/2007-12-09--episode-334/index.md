@@ -15,4 +15,3 @@ description: "The Red Hot Decisive Battle! Luffy vs. the Scorching Don"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXREN88A5C" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXREN88A5C">Download Episode 334</a>

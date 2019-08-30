@@ -15,4 +15,3 @@ description: "An Eternal Farewell? Nico Robin, The Woman Who Bears Darkness"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQH4NTP5F" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQH4NTP5F">Download Episode 240</a>

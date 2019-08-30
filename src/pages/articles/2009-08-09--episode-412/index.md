@@ -15,4 +15,3 @@ description: "The Heartless Judgment! Margaret Turned to Stone!!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G0NNTPM332" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G0NNTPM332">Download Episode 412</a>

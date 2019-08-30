@@ -15,4 +15,3 @@ description: "A Special Presentation Related to the Movie! Little East Blue in D
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G0NO7W4AGH" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G0NO7W4AGH">Download Episode 427</a>

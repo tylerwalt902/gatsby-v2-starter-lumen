@@ -15,4 +15,3 @@ description: "The Drawn Sword's Fierce Attack! Zoro vs. Kaku Powerful Slash Show
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHUSJW7J" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQHUSJW7J">Download Episode 299</a>

@@ -15,4 +15,3 @@ description: "The Extermination Strategy in Action! The Power of the Pacifistas!
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPEW29H" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPEW29H">Download Episode 471</a>

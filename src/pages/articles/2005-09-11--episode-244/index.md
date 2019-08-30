@@ -15,4 +15,3 @@ description: "The Secret Bond! Franky and Iceburg"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQH5C0PWL" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQH5C0PWL">Download Episode 244</a>

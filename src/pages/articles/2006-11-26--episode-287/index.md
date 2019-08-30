@@ -15,4 +15,3 @@ description: "Even if I Die, I Won't Kick You! Sanji's Manly Chivalry"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHQGCEEU" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQHQGCEEU">Download Episode 287</a>

@@ -15,4 +15,3 @@ description: "The Vanished City! The Magnificent Ruins of Shandora!!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQGFF1O0G" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQGFF1O0G">Download Episode 174</a>

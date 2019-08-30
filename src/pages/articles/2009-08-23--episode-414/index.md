@@ -15,4 +15,3 @@ description: "Battle with Full-Powered Abilities! Gomu Gomu vs. Hebi Hebi"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G0NNUR22JG" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G0NNUR22JG">Download Episode 414</a>

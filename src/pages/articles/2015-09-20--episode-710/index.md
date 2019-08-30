@@ -15,4 +15,3 @@ description: "The Battle of Love! The New Leader Sai vs. Baby 5!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPGJ0D6" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPGJ0D6">Download Episode 710</a>

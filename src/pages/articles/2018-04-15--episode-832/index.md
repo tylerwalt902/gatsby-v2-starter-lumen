@@ -15,4 +15,3 @@ description: "A Deadly Kiss! The Mission to Assassinate the Emperor Kicks Off!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPH6PAH" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPH6PAH">Download Episode 832</a>

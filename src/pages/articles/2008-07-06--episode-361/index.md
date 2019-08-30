@@ -15,4 +15,3 @@ description: "Perona's Terror!! The U in Uso is the U in Usopp"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0MJZP4O" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXV0MJZP4O">Download Episode 361</a>

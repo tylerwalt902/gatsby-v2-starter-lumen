@@ -15,4 +15,3 @@ description: "The Third One! Raizo of the Mist, the Ninja, Appears!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPGU7JS" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPGU7JS">Download Episode 768</a>

@@ -15,4 +15,3 @@ description: "We will Definately Meet Again! Brook and the Promise of the Cape"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0J5PYQK" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXV0J5PYQK">Download Episode 354</a>

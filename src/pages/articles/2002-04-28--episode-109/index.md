@@ -15,4 +15,3 @@ description: "The Key to Turning the Tide and a Great Escape! Doru Doru Ball!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXOR3BJCW2" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXOR3BJCW2">Download Episode 109</a>

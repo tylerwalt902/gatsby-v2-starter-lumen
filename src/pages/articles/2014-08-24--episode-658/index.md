@@ -15,4 +15,3 @@ description: "Shock! The Toy Soldier's True Identity"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPG7EI6" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPG7EI6">Download Episode 658</a>

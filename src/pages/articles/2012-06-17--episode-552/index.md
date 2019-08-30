@@ -15,4 +15,3 @@ description: "Shocking Confession - The Truth about Otohime's Assassination"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPFBWXI" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPFBWXI">Download Episode 552</a>

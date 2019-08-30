@@ -15,4 +15,3 @@ description: "Fukurou's Miscalculation - My Cola is the Water of Life!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHQNW76R" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQHQNW76R">Download Episode 288</a>

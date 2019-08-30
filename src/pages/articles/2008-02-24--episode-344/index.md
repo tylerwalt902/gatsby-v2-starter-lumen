@@ -15,4 +15,3 @@ description: "Feast of the Zombie Song! The Bell of the Night Raid is a Sound of
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXREQ1KSMJ" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXREQ1KSMJ">Download Episode 344</a>

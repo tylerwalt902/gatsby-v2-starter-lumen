@@ -15,4 +15,3 @@ description: "Luffy's Past! Enter Red-Haired Shanks!"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/05vlpnrxno6" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/05vlpnrxno6">Download Episode 4</a>

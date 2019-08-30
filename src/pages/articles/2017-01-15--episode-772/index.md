@@ -15,4 +15,3 @@ description: "The Legendary Journey! The Dog and the Cat and the Pirate King!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPGV7RP" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPGV7RP">Download Episode 772</a>

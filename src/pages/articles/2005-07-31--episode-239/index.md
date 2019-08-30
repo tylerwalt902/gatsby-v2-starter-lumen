@@ -15,4 +15,3 @@ description: "The Criminals are the Straw Hat Pirates? The Bodyguards of Water 7
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQH4GDT6P" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXQH4GDT6P">Download Episode 239</a>

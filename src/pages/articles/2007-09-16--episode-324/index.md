@@ -15,4 +15,3 @@ description: "The World-Wide Bounties! The Hometowns Dance as the Ship Sails For
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXREJOQUYD" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXREJOQUYD">Download Episode 324</a>

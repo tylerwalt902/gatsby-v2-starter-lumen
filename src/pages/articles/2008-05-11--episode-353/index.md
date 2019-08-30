@@ -15,4 +15,3 @@ description: "A Man's Oath will Never Die! From Far Memories to the Waiting Frie
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0IZ3NSU" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXV0IZ3NSU">Download Episode 353</a>

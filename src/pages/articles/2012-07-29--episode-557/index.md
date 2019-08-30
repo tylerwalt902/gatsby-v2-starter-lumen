@@ -15,4 +15,3 @@ description: "Iron Pirate! Entry of Franky Shogun"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPFCKX4" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPFCKX4">Download Episode 557</a>

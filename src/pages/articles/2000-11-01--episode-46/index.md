@@ -15,4 +15,3 @@ description: "Following the Straw Hat! Little Buggy's Big Adventure"
 
 <iframe width="640" height="360" src="https://www.fembed.com/v/6mv2ywdgd9r" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.fembed.com/v/6mv2ywdgd9r">Download Episode 46</a>

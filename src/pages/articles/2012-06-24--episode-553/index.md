@@ -15,4 +15,3 @@ description: "Shirahoshi's Tears! Finally, Luffy's Appearance!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPFC2UC" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPFC2UC">Download Episode 553</a>

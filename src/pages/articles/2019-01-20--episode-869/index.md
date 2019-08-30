@@ -15,4 +15,3 @@ description: "Wake Up - To Cross Over the Strongest Kenbunshoku"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPHDPGE" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/G6FRPHDPGE">Download Episode 869</a>

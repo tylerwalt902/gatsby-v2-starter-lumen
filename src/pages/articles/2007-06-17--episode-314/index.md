@@ -15,4 +15,3 @@ description: "The Strongest Family Line? Luffy's Father Revealed!"
 
 <iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXREHXM6HB" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
 
-<a href="http://ouo.io/qs/eCodkFEQ?s=https://rapidvid.to/d/https://www.rapidvideo.com/e/FXREHXM6HB">Download Episode 314</a>
