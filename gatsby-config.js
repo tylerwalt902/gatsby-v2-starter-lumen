@@ -22,6 +22,10 @@ module.exports = {
         label: 'DMCA',
         path: '/dmca/',
       },
+      {
+        label: 'Watch Demon Slayer: Kimetsu no Yaiba',
+        path: '/watch-kimetsu-no-yaiba/',
+      },
     ],
     author: {
       name: '1Piece.me',
