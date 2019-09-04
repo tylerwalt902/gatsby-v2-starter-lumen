@@ -23,6 +23,10 @@ module.exports = {
         path: '/dmca/',
       },
       {
+        label: 'Download All Episodes',
+        path: '/download/',
+      },
+      {
         label: 'Watch Demon Slayer: Kimetsu no Yaiba',
         path: '/watch-kimetsu-no-yaiba/',
       },
