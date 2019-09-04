@@ -13,5 +13,7 @@ description: "The Adventure in the City of Water! Aim for the Giant Shipyard"
 
 **The Adventure in the City of Water! Aim for the Giant Shipyard**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQGXUA5CT" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQGXUA5CT" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXQGXUA5CT" class="styled_a">Download this episode →</a>
 

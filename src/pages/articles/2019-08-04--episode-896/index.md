@@ -13,5 +13,7 @@ description: "Special Editon! - Luffy Vs Carbonic Acid King"
 
 **Special Editon! - Luffy Vs Carbonic Acid King**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G5ZQ9PGMOJ" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G5ZQ9PGMOJ" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G5ZQ9PGMOJ" class="styled_a">Download this episode →</a>
 

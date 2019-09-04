@@ -13,5 +13,7 @@ description: "Deliver Princess Vivi! Luffy Pirates Depart"
 
 **Deliver Princess Vivi! Luffy Pirates Depart**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FX3C1MHMSJ" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FX3C1MHMSJ" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FX3C1MHMSJ" class="styled_a">Download this episode →</a>
 

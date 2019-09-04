@@ -13,5 +13,7 @@ description: "Brook`s Past - Sad Farewell to the Cheerful Crew"
 
 **Brook`s Past - Sad Farewell to the Cheerful Crew**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0UI3AES" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0UI3AES" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXV0UI3AES" class="styled_a">Download this episode →</a>
 

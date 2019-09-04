@@ -13,5 +13,7 @@ description: "Tears Which Weaved the Bond of Comrades! Nami's World Map"
 
 **Tears Which Weaved the Bond of Comrades! Nami's World Map**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHPG8KTG" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHPG8KTG" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXQHPG8KTG" class="styled_a">Download this episode →</a>
 

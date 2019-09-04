@@ -13,5 +13,7 @@ description: "Admiral Kizaru's Fierce Attack. The Straw Hat Crew`s Desperate Sit
 
 **Admiral Kizaru's Fierce Attack. The Straw Hat Crew`s Desperate Situation!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G0NNRX5D36" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G0NNRX5D36" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G0NNRX5D36" class="styled_a">Download this episode →</a>
 

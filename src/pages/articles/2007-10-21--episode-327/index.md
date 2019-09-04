@@ -13,5 +13,7 @@ description: "Sunny in a Pinch! Roar, Secret Superspeed Mecha"
 
 **Sunny in a Pinch! Roar, Secret Superspeed Mecha**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXREM4JNIS" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXREM4JNIS" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXREM4JNIS" class="styled_a">Download this episode →</a>
 

@@ -13,5 +13,7 @@ description: "If I Can't Win, I Can't Protect Anyone! Gear Third Activates"
 
 **If I Can't Win, I Can't Protect Anyone! Gear Third Activates**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHYRQX8L" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHYRQX8L" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXQHYRQX8L" class="styled_a">Download this episode →</a>
 

@@ -13,5 +13,7 @@ description: "The Signal is the Explosion! CP9 Starts to Move"
 
 **The Signal is the Explosion! CP9 Starts to Move**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQH4ZLM58" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQH4ZLM58" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXQH4ZLM58" class="styled_a">Download this episode →</a>
 

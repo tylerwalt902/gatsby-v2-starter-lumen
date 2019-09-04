@@ -13,5 +13,7 @@ description: "Floating Land of Gold, Jaya! To God's Shrine!"
 
 **Floating Land of Gold, Jaya! To God's Shrine!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQEDRA9L5" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQEDRA9L5" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXQEDRA9L5" class="styled_a">Download this episode →</a>
 

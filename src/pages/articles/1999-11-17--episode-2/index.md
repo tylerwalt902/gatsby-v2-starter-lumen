@@ -13,5 +13,7 @@ description: "Enter the Great Swordsman! Pirate Hunter Roronoa Zoro!"
 
 **Enter the Great Swordsman! Pirate Hunter Roronoa Zoro!**
 
-<iframe width="640" height="360" src="https://www.fembed.com/v/4d9j0-d0yo1" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.fembed.com/v/4d9j0-d0yo1" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.fembed.com/f/4d9j0-d0yo1" class="styled_a">Download this episode →</a>
 

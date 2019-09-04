@@ -13,5 +13,7 @@ description: "The Great Mochimaki Race to the Castle! Conspiracy of the Red Nose
 
 **The Great Mochimaki Race to the Castle! Conspiracy of the Red Nose**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHSWB3IQ" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHSWB3IQ" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXQHSWB3IQ" class="styled_a">Download this episode →</a>
 

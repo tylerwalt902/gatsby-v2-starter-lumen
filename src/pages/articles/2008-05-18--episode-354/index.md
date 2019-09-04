@@ -13,5 +13,7 @@ description: "We will Definately Meet Again! Brook and the Promise of the Cape"
 
 **We will Definately Meet Again! Brook and the Promise of the Cape**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0J5PYQK" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0J5PYQK" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXV0J5PYQK" class="styled_a">Download this episode →</a>
 

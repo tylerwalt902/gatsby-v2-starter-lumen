@@ -13,5 +13,7 @@ description: "Full Power Noro Noro Beam vs The Invulnerable Luffy"
 
 **Full Power Noro Noro Beam vs The Invulnerable Luffy**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQGV3M4KJ" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQGV3M4KJ" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXQGV3M4KJ" class="styled_a">Download this episode →</a>
 

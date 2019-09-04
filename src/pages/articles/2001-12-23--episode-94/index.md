@@ -13,5 +13,7 @@ description: "Reunion of the Powerful! His Name is Fire Fist Ace"
 
 **Reunion of the Powerful! His Name is Fire Fist Ace**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FX3CMP4R4S" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FX3CMP4R4S" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FX3CMP4R4S" class="styled_a">Download this episode →</a>
 

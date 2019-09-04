@@ -13,5 +13,7 @@ description: "Forbidden Sacred Ground! The Island Where God Resides and Heaven's
 
 **Forbidden Sacred Ground! The Island Where God Resides and Heaven's Judgement!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQE9CLA8W" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQE9CLA8W" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXQE9CLA8W" class="styled_a">Download this episode →</a>
 

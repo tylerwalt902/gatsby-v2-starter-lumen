@@ -13,5 +13,7 @@ description: "Because He's Our Friend - Bon Kurei's Do-or-Die Rescue"
 
 **Because He's Our Friend - Bon Kurei's Do-or-Die Rescue**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6GJ53T8ER" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6GJ53T8ER" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G6GJ53T8ER" class="styled_a">Download this episode →</a>
 

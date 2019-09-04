@@ -13,5 +13,7 @@ description: "A Special Presentation Related to the Movie! A Gold Lion's Ambitio
 
 **A Special Presentation Related to the Movie! A Gold Lion's Ambition on the Move!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G0NO7FKYGB" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G0NO7FKYGB" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G0NO7FKYGB" class="styled_a">Download this episode →</a>
 

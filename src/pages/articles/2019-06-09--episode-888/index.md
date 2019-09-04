@@ -13,5 +13,7 @@ description: "Sabo Gets Angry - Tragedy of the Revolutionary Army Officer Kuma"
 
 **Sabo Gets Angry - Tragedy of the Revolutionary Army Officer Kuma**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G3UUZ3KMMU" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G3UUZ3KMMU" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G3UUZ3KMMU" class="styled_a">Download this episode →</a>
 

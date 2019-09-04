@@ -13,5 +13,7 @@ description: "The Battle is Over! Kohza Flies the White Flag"
 
 **The Battle is Over! Kohza Flies the White Flag**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXORFA3IF2" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXORFA3IF2" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXORFA3IF2" class="styled_a">Download this episode →</a>
 

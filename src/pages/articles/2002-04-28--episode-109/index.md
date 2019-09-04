@@ -13,5 +13,7 @@ description: "The Key to Turning the Tide and a Great Escape! Doru Doru Ball!"
 
 **The Key to Turning the Tide and a Great Escape! Doru Doru Ball!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXOR3BJCW2" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXOR3BJCW2" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXOR3BJCW2" class="styled_a">Download this episode →</a>
 

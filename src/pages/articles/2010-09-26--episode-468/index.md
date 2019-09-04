@@ -13,5 +13,7 @@ description: "Hard Battles, One After Another! Devil's Fruit Eaters vs. Devil's 
 
 **Hard Battles, One After Another! Devil's Fruit Eaters vs. Devil's Fruit Eaters!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPEVOHY" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPEVOHY" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G6FRPEVOHY" class="styled_a">Download this episode →</a>
 

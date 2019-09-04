@@ -13,5 +13,7 @@ description: "Luffy, Startled - The Man Who Will Inherit Ace's Will"
 
 **Luffy, Startled - The Man Who Will Inherit Ace's Will**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPG8CWB" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPG8CWB" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G6FRPG8CWB" class="styled_a">Download this episode →</a>
 

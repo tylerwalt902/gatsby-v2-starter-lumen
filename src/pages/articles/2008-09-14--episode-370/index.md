@@ -13,5 +13,7 @@ description: "A Crazy Strategy to Turn the Tables - The Creation of Nightmare Lu
 
 **A Crazy Strategy to Turn the Tables - The Creation of Nightmare Luffy**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0O3G8PH" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0O3G8PH" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXV0O3G8PH" class="styled_a">Download this episode →</a>
 

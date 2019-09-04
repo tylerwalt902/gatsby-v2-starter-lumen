@@ -13,5 +13,7 @@ description: "Sandai Kitetsu and Yubashiri! Zoro's New Swords, and the Female Se
 
 **Sandai Kitetsu and Yubashiri! Zoro's New Swords, and the Female Sergeant Major**
 
-<iframe width="640" height="360" src="https://www.fembed.com/v/en9857yz091" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.fembed.com/v/en9857yz091" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.fembed.com/f/en9857yz091" class="styled_a">Download this episode →</a>
 

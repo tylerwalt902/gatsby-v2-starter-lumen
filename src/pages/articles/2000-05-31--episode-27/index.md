@@ -13,5 +13,7 @@ description: "The Coldhearted Devil-man. Gin, the Pirate Fleet Battle Commander"
 
 **The Coldhearted Devil-man. Gin, the Pirate Fleet Battle Commander**
 
-<iframe width="640" height="360" src="https://www.fembed.com/v/yxo3xwrnqol" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.fembed.com/v/yxo3xwrnqol" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.fembed.com/f/yxo3xwrnqol" class="styled_a">Download this episode →</a>
 

@@ -13,5 +13,7 @@ description: "Usopp's Death?! Luffy - Yet To Land?"
 
 **Usopp's Death?! Luffy - Yet To Land?**
 
-<iframe width="640" height="360" src="https://www.fembed.com/v/80ve38zd7oj" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.fembed.com/v/80ve38zd7oj" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.fembed.com/f/80ve38zd7oj" class="styled_a">Download this episode →</a>
 

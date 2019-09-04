@@ -13,5 +13,7 @@ description: "The Power that Burns Fire - Akainu's Final Move"
 
 **The Power that Burns Fire - Akainu's Final Move**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPEXV2T" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPEXV2T" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G6FRPEXV2T" class="styled_a">Download this episode →</a>
 

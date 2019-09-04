@@ -13,5 +13,7 @@ description: "Fukurou's Miscalculation - My Cola is the Water of Life!"
 
 **Fukurou's Miscalculation - My Cola is the Water of Life!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHQNW76R" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXQHQNW76R" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXQHQNW76R" class="styled_a">Download this episode →</a>
 

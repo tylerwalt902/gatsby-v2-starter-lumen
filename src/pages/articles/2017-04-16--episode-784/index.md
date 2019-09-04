@@ -13,5 +13,7 @@ description: "0 and 4 – A Confrontation with Germa 66!"
 
 **0 and 4 – A Confrontation with Germa 66!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPGX053" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPGX053" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G6FRPGX053" class="styled_a">Download this episode →</a>
 

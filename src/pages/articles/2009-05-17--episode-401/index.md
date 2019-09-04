@@ -13,5 +13,7 @@ description: "Impossible to Avoid!? Admiral Kizaru`s Speed of Light Kick"
 
 **Impossible to Avoid!? Admiral Kizaru`s Speed of Light Kick**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G0NNR9O1L3" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G0NNR9O1L3" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G0NNR9O1L3" class="styled_a">Download this episode →</a>
 

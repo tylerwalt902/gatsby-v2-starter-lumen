@@ -13,5 +13,7 @@ description: "Wano Country! To the Land of Dancing Sakura and Samurai"
 
 **Wano Country! To the Land of Dancing Sakura and Samurai**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6HY43W9ZL" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6HY43W9ZL" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G6HY43W9ZL" class="styled_a">Download this episode →</a>
 

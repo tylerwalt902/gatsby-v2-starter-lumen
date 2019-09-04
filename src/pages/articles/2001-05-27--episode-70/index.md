@@ -13,5 +13,7 @@ description: "Prehistoric Island! The Shadow Lurking in Little Garden!"
 
 **Prehistoric Island! The Shadow Lurking in Little Garden!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FX3C2FI1KL" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FX3C2FI1KL" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FX3C2FI1KL" class="styled_a">Download this episode →</a>
 

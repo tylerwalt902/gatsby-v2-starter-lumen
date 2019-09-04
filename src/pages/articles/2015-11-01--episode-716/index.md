@@ -13,5 +13,7 @@ description: "Stardust of Death! Diamante's Storm of Vicious Attacks!"
 
 **Stardust of Death! Diamante's Storm of Vicious Attacks!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPGK60S" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPGK60S" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G6FRPGK60S" class="styled_a">Download this episode →</a>
 

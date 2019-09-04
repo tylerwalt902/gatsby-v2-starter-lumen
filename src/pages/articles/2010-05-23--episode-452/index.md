@@ -13,5 +13,7 @@ description: "The Destination is Marine Headquarters - The Ship Sets Out to Resc
 
 **The Destination is Marine Headquarters - The Ship Sets Out to Rescue Ace!**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPES94V" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPES94V" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G6FRPES94V" class="styled_a">Download this episode →</a>
 

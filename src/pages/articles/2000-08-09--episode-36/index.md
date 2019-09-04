@@ -13,5 +13,7 @@ description: "Survive! The Mother Bellemere and Nami's Family!"
 
 **Survive! The Mother Bellemere and Nami's Family!**
 
-<iframe width="640" height="360" src="https://www.fembed.com/v/4lv0nw3gx9q" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.fembed.com/v/4lv0nw3gx9q" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.fembed.com/f/4lv0nw3gx9q" class="styled_a">Download this episode →</a>
 

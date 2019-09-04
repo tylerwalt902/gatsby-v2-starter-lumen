@@ -13,5 +13,7 @@ description: "Oars Roars!! Come Out Straw Hat Crew"
 
 **Oars Roars!! Come Out Straw Hat Crew**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0N4NTG9" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/FXV0N4NTG9" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/FXV0N4NTG9" class="styled_a">Download this episode →</a>
 

@@ -13,5 +13,7 @@ description: "Saddest Duel - Luffy vs. Sanji - Part 1"
 
 **Saddest Duel - Luffy vs. Sanji - Part 1**
 
-<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPH27BV" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen></iframe>
+<iframe width="640" height="360" src="https://www.rapidvideo.com/e/G6FRPH27BV" frameborder="0" marginwidth=0 marginheight=0 scrolling=no allowfullscreen style="max-width:90%;"></iframe>
+
+<a href="http://ouo.io/qs/eCodkFEQ?s=https://www.rapidvideo.com/d/G6FRPH27BV" class="styled_a">Download this episode →</a>
 
