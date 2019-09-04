@@ -3,6 +3,7 @@ import { Link } from 'gatsby'
 import moment from 'moment'
 import Disqus from '../Disqus/Disqus'
 import './style.scss'
+import './simp.css'
 
 class PostTemplateDetails extends React.Component {
   render() {
@@ -45,7 +46,7 @@ class PostTemplateDetails extends React.Component {
     return (
       <div>
         {homeBlock}
-        <div className="post-single">
+        <div className="post-single">	
           <div className="post-single__inner">
             <h1 className="post-single__title">Watch One Piece {post.frontmatter.title} Online</h1>
             <div
