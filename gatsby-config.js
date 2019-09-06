@@ -30,6 +30,10 @@ module.exports = {
         label: 'Watch Demon Slayer: Kimetsu no Yaiba',
         path: '/watch-kimetsu-no-yaiba/',
       },
+      {
+        label: 'Question: Should we change the website layout?',
+        path: '/question/',
+      },
     ],
     author: {
       name: '1Piece.me',
