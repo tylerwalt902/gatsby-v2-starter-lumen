@@ -3,7 +3,7 @@ title: Episode 902
 date: "2019-09-15T00:30:00+00:00"
 layout: post
 draft: false
-path: "/sub-one-piece-episode-901"
+path: "/sub-one-piece-episode-902"
 category: "Subbed"
 tags:
   - "One Piece"
