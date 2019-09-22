@@ -8,7 +8,7 @@ category: "Subbed"
 tags:
   - "One Piece"
   - "Subbed"
-description: "The Yokozuna Appears! The Invincible Urashima Goes After Okiku!"
+description: "Luffy, Zoro, Kiku, and Komachiyo enter Bakura Town to rescue Tama. They later come across Urashima participating in sumo matches. After Urashima's men grab Kiku and bring her to the ring, Kiku rejects Urashima by cutting off his topknot. Enraged, Urashima attacks Kiku, but Luffy steps in and clashes with him."
 ---
 
 **The Yokozuna Appears! The Invincible Urashima Goes After Okiku!**
