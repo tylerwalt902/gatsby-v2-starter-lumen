@@ -1,6 +1,6 @@
 ---
 title: Episode 906
-date: "2019-10-06T00:30:00+00:00"
+date: "2019-10-13T00:30:00+00:00"
 layout: post
 draft: false
 path: "/sub-one-piece-episode-906"
