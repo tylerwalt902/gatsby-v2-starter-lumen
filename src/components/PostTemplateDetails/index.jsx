@@ -57,6 +57,12 @@ class PostTemplateDetails extends React.Component {
             <div className="post-single__body">
                {post.frontmatter.description}
             </div>
+
+            <div className="post-single__body">
+            <script async="async" data-cfasync="false" src="//pl15203289.pvclouds.com/3df219d97508de19ab12e29a4ce8d563/invoke.js"></script>
+            <div id="container-3df219d97508de19ab12e29a4ce8d563"></div>
+            </div>
+            
             <div className="post-single__body">
                Watch One Piece {post.frontmatter.title} online in high quality. Watch One Piece {post.frontmatter.title} Subbed Online. Watch One Piece {post.frontmatter.title} in best quality. 
       Watch {post.frontmatter.title} of one piece in best quality. Download One Piece {post.frontmatter.title} in high quality.
