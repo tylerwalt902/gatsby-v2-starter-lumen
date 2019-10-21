@@ -59,7 +59,7 @@ class PostTemplateDetails extends React.Component {
             </div>
 
             <div className="post-single__body">
-            <script async="async" data-cfasync="false" src="//pl15203289.pvclouds.com/3df219d97508de19ab12e29a4ce8d563/invoke.js"></script>
+            <script async="async" data-cfasync="false" src="https://pl15203289.pvclouds.com/3df219d97508de19ab12e29a4ce8d563/invoke.js"></script>
             <div id="container-3df219d97508de19ab12e29a4ce8d563"></div>
             </div>
             
